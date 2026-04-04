@@ -1,4 +1,13 @@
 ## Hey Man ✋| Find info 'bout me here 👇
+
+- I'm Yahia AKA *Andeel*
+- I'm likely 14 years old $(in 14th of oct )$
+
+
+
+
+
+
 <!--
 **Andeeel/Andeeel** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 

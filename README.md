@@ -1,8 +1,20 @@
 ## Hey Man ✋| Find info 'bout me here 👇
 
-- I'm Yahia AKA *Andeel*
-- I'm likely 14 years old $(in 14th of oct )$
+- I'm Yahia AKA *Andeel* 🪼
+- I'm 14 years old
+- I'm Egyptian from Alexandria 
+-------------------------------------------------------
+- 💻 I'm working on learning C++
+- 🤫 I'm building sth. secret for now
+- 🏓Accually I love Reading , Walking , Consuming cinematic content ...etc
+-------------------------------------------------------
+For contact:
+- Email : - yahia.in.bussines@gmail.com
+          - studioforbussines@gmail.com
+  
+- Discord : Andeeel
 
+  
 
 
 

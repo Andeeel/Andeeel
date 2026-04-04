@@ -12,7 +12,7 @@ For contact:
 - Email : - yahia.in.bussines@gmail.com
           - studioforbussines@gmail.com
   
-- Discord : Andeeel
+- Discord : @Andeeel
 
   
 

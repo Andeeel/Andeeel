@@ -1,4 +1,4 @@
-## Hey Man ✋| Find info 'bout me here 👇
+## Hey Man 🖐🏻| Find info 'bout me here 👇🏻
 
 - I'm Yahia AKA *Andeel* 🪼
 - I'm 14 years old
